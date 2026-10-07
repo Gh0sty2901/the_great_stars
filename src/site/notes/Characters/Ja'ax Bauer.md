@@ -84,7 +84,7 @@ Ja'ax shifted his look over to the trench coated person. Dark red scales gleamed
 
 He watched Yeshua lean toward the general secretary and point back at him. Kael turned his head and lowered his sunglasses an inch. Ja'ax spun his stool to face the bar, which didn't help. The stool scraped. Footsteps came closer. He stared hard at his soda and felt his scales go rigid.
 
-"Ja'ax. Golukta sirosi." Kael addressed him in K'tharrian. "Glad to see the Neu-Preussen project has worked wonders." Kael said in K'tharrian while looking him up and down. He hadn't heard anyone speak his language other than his mother.
+"Ja'ax. Golukta sirosi." Kael addressed him in K'tharrian. "Glad to see the Neu-Preussen project has worked wonders." He hadn't heard anyone speak his language other than his mother.
 
 Ja'ax turned around to face the towering reptile. He was standing a pace away from him.
 
