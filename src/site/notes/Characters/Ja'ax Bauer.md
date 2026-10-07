@@ -68,11 +68,11 @@ Ja'ax shifted his look over to the trench coated person. Dark red scales gleamed
 
 "I thought that guy was a shut in." retorted Yeshua.
 
-"Rarely seen in public, yeah. Which is weird considering that he's in a club like this."
+"Rarely seen in public, yeah. Which is weird considering that he's in a club like this." he said, thinking about how a man who supposedly signed off on crackdowns on 'bourgeois' culture would hang out in a spot like this.
 
 "Let's go talk to him." Yeshua stood up from his stool before Ja'ax grabbed his sleeve.
 
-"Are you stupid? Dude's probably just here to relax. He has enough on his plate, keeping the galaxy from falling apart and with whatever nightmare is happening at the Frayed Zone. He does NOT need to deal with your dumbass." his tail flicking in annoyance.
+"Are you stupid? He's probably just here to relax. He has enough on his plate, keeping the galaxy from falling apart and with whatever nightmare is happening at the Frayed Zone. He does NOT need to deal with your dumbass." his tail flicking in annoyance.
 
 "Ah come on man, I'll just say hi"
 
@@ -104,10 +104,36 @@ Ja'ax clutched his shirt, his heart beating hard and loud. "Holy shit, dude." Hi
 
 # Short Story 3: 
 
-13:30 UTC, Kareuth Institute of Technologies. The front yard and the student lounges cleared as classes resumed. 
+13:30 UTC, Kareuth Institute of Technologies. The front yard and the student lounges cleared as classes resumed. Birds flew and chirped, and indigenous cicadas hummed in the background as Ja'ax tried to take his exam. Right next to him was Yeshua, copying off him, typical. He tried to ignore it as best as he could and just answer his exam to the best of his knowledge. 
+
+14:30 UTC, class bell rang. The corridors filled with students as they either rushed to get to their next class or get the best spots to hang around. Yeshua and Ja'ax, done with classes for the day, left early. They decided to go to one of their favorite hang out spots at the nearby park where kids went to play and joggers well, jogged. 
+
+15:00 UTC, Kareuth Nature Park. Ja'ax and Yeshua walked side by side, breathing in the fresh air as birds flew overhead. The leaves of the trees were orange and falling, it was Autumn in Neu-Preussen. They sat at a bench at the middle of the park, overlooking a giant statue of Marx and Engels, two guys he'd been taught since he could remember. 
+
+"This is nice." Yeshua noted, swaying his legs over the bench.
+
+"Yeah."
+
+"Do you think people think we're gay?" 
+
+Ja'ax recoiled at the sudden question. 
+
+"Dude what?"
+
+"I'm just saying, we're always together, and people like to talk!"
+
+"If we were gay, that wouldn't be their problem now would it?" Ja'ax said, his scales flicking in embarrassment.
+
+"I'm just saying man, we're basically a gay couple if you think about it."
+
+"Do YOU want to be a gay couple?"
+
+"No," Yeshua said, looking away. Ja'ax could just about notice a faint blush. He wanted to push further but decided not to.
+
+"Whatever man. Let's just enjoy the park," Yeshua muttered as he stared at the statue of Marx and Engels close together.
 
 # Background
-Born in Neu-Preussen, A former colonial holding of the Galactic German Empire.
+
 
 # Physical Appearance 
 

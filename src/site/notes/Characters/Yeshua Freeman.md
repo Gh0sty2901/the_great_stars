@@ -2,7 +2,6 @@
 {"dg-publish":true,"permalink":"/characters/yeshua-freeman/","dg-note-properties":{}}
 ---
 
-Party animal 
 
 # Short stories: 
 
@@ -30,11 +29,11 @@ Party animal
 
 "Yeaaaah manager registered the place. Can't blame him, he's the brother of the second in command." Randy said as he wiped a glass.
 
-Ja'ax just sat in his stool and listened to the twinkly music played by the band on stage. Not really Yeshua's thing, but its music. As he downed another shot, he noticed two new dudes enter the premises. One in military uniform, the other in a trench coat. He went on high alert. He watched as the military man walk behind the stage and the trench coat order a drink. He seemed familiar, but he couldn't quite get it. He tapped Ja'ax shoulder and pointed at the trench coated man near the exit.
+Ja'ax just sat in his stool and listened to the twinkly music played by the band on stage. Not really Yeshua's thing, but its music. As he downed another shot, he noticed two new dudes enter the premises. One in military uniform, the other in a trench coat. He sobered up a bit and watched them intently, uniforms usually meant raids. He watched as the military man walk behind the stage and the trench coat order a drink. He seemed familiar, but he couldn't quite get it, then he saw the color of his scales. He tapped Ja'ax shoulder and pointed at the trench coated man near the exit.
 
 "Yo. Yo, dude. Look at trench coat over there. Ain't that literally general secretary Kael of the Galaxy slumming it with the regulars as if it isn't a big deal?"
 
-Ja'ax shifted his look towards where Yeshua was pointing. He scanned the man and looked at his wrist and collar. He spat out his drink when he recognized the man. 
+Ja'ax shifted his look towards where Yeshua was pointing. He scanned the man and looked at his wrist and collar. He spat out his drink when he recognized him.
 
 "Holy shit it is. Dark red scales, can't miss it. What's he doing here? Didn't he take command of the Ewigkeit?"
 
@@ -46,7 +45,7 @@ Ja'ax shifted his look towards where Yeshua was pointing. He scanned the man and
 
 "Are you stupid? Dude's probably just here to relax. He has enough on his plate, keeping the galaxy from falling apart and with whatever nightmare is happening at the Frayed Zone. He does NOT need to deal with your dumbass."
 
-"Ah come on man, I'll just say hi"
+"Ah come on man, I'll just say hi."
 
 "Yesh.."
 
@@ -54,17 +53,17 @@ Ja'ax shifted his look towards where Yeshua was pointing. He scanned the man and
 
 Yeshua approached the General secretary, a little nervous, a little excited. He was about to greet the most powerful man in the world and he was tipsy. 
 
-"H-hey man. Aren't you general secretary Kael?"
+"Hey man. Aren't you general secretary Kael?"
 
 "An astute observation young man. Who are you?"
 
-"M-my name's Yeshua and my friend over there is a big fan of yours." he points at Ja'ax over at the bar. He spun around to face away from them.
+"My name's Yeshua and my friend over there is a big fan of yours." he points at Ja'ax over at the bar. He spun around to face away from them.
 
 "His name is Ja'ax. He's a pretty cool dude, got good grades."
 
-"Ja'ax, sounds familiar. I believe I've read about him in a couple of reports from your school."  
+"Ja'ax, sounds familiar. I believe I've read about him in a couple of reports from this district's university."  
 
-Yeshua, who was swaying side by side, heard from the General Secretary, "You on the other hand, you need to watch yourself." Yeshua felt heat rise up from his chest at the warning. His ears red, and he almost ran out of breath.
+Yeshua, who was swaying side by side, heard from the General Secretary, "You on the other hand, you need to watch yourself." Yeshua felt heat rise up from his chest at the warning. His ears red, he almost ran out of breath.
 
 The General Secretary then stood up and approached the hybrid. *uh oh. maybe I might've gotten him in trouble* thought Yeshua. 
 

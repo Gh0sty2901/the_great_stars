@@ -4,8 +4,6 @@
 
 #thegreatstars #characters
 
-Warrior - Consort - Rectifier 
-
 # Short story: 
 
 Kael woke at exactly 04:00 UTC+0 in his apartment in a high-density Soviet bloc in Berlin. He rose in his nightgown and made his bed with care, folding the sheets evenly and arranging the pillows symmetrically at its head.
@@ -16,7 +14,7 @@ He folded his nightgown and carried it to his walk-in wardrobe, where green mili
 
 Next came the tea. He prepared a traditional K'tharr blend through an elaborate ceremony that kept him grounded and disciplined and reminded him of his roots. Cup in hand, he crossed to his library: roughly three hundred books in labeled sections, from historical sources to scientific journals to fiction, ending in a full shelf devoted to Marxism. He drew a volume from that last shelf, settled into the chair at the center of the living room, and set his tea on the table beside him. The book was _Historical Materialism in the Time of Galactic Abundance_. He read it line by line, nodding, jotting notes in his journal.
 
-By 06:00 UTC+0 he had reached page 200, and his tea was finished. Ready to address the galaxy, Kael returned the book to its exact place on the shelf and left for the central committee.
+By 06:00 UTC+0 he had reached page 200, and his tea was finished. Ready to address the galaxy, Kael returned the book to its exact place on the shelf and left for the politburo.
 
 # Short story 2:
 
@@ -52,13 +50,13 @@ A young human in a grey hoodie approached him, seemingly nervous, almost excited
 
 "An astute observation young man. Who are you?"
 
-"M-my name's Yeshua and my friend over there is a big fan of yours." pointing at the hybrid reptile by the bar. 
+"My name's Yeshua and my friend over there is a big fan of yours." pointing at the hybrid reptile by the bar. 
 
 *a hybrid* Kael thought, taking note of the young man's features. 
 
 "His name is Ja'ax. He's a pretty cool dude, got good grades."
 
-"Ja'ax, sounds familiar. I believe I've read about him in a couple of reports from your school." He stared at the obviously tipsy young human up and down as he bobbled while he stood, "You on the other hand, you need to watch yourself."
+"Ja'ax, sounds familiar. I believe I've read about him in a couple of reports from this district's university." He stared at the obviously tipsy young human up and down as he bobbled while he stood, "You on the other hand, you need to watch yourself."
 
 He stood up from his stool to greet the hybrid. 
 
@@ -74,15 +72,15 @@ The hybrid faced him. Kael observed Ja'ax face, he's nervous, scales rigid. He k
 
 "T-thank you s-sir."
 
-"Well you boys stay out of trouble now. I like what I'm seeing here so I'll send a notice to the Neu-preussen Central committee that this location is a credit to the district." Kael said in German once more and with a nod before heading back to his stool to finish his tea. He looks at the time, it's been 25 minutes. 
+"Well you boys stay out of trouble now. I like what I'm seeing here so I'll send a notice to the Neu-preussen Central committee that this location is a credit to the district." Kael said with a nod before heading back to his stool to finish his tea. He looks at the time, it's been 25 minutes. 
 
 Elios then appears from behind the stage and approaches the general secretary. 
 
-"Everything in order commander?"
+"Everything in order commander?" Kael inquired Elios.
 
 "Yes sir! My brother is running the place as ordered."
 
-"Good to hear. Let us convene with the central committee then."
+"Good to hear. Let us convene with the politburo then."
 
 "Lets." 
 
@@ -102,7 +100,7 @@ Elios then appears from behind the stage and approaches the general secretary.
 
 "Sir?"
 
-"Oh yes, I heard about it in a report just a few days ago. My condolences."
+"Oh yes, I heard about it in a report just an hour ago. My condolences."
 
 Elios' face stooped down, upset.
 
@@ -132,7 +130,7 @@ Kael stopped, his hands behind his back. Elios stopped as well looking at his su
 
 Elios eyes' lit up once more. "T-thank you Sir."
 
-"Now now, no need to be so jovial. We've got a score to settle with the central committee."
+"Now now, no need to be so jovial. We've got a score to settle with the politburo."
 
 "Yes Sir!"
 
@@ -142,13 +140,13 @@ Elios eyes' lit up once more. "T-thank you Sir."
 
 # Short Story 4:
 
-19:00 UTC, aboard the Ewigkeit floating through the Milkyway Galaxy. The corridors were quiet, only clanking with the sound of boots stomping on the catwalks. Except for one corridor deep in the Ewigkeit, the General Secretary's quarters. It was booming with sounds of deep connection, every scream, every name call, followed by the sound of scale and skin slapping and scratching each other. 
+19:00 UTC, aboard the Ewigkeit floating through the Milkyway Galaxy. The corridors were quiet, only clanking with the sound of boots stomping on the catwalks. Except for one corridor deep in the Ewigkeit, the General Secretary's quarters. It was booming with sounds of moans and screams, every name call, every shout, followed by the sound of scale and skin slapping and scratching.
 
 The two bodyguards guarding the door looked down at the floor as they heard how loud the two were getting in there. 
 
 "I don't get paid enough for this crap." said Robin, a human guard.
 
-"You realize we don't get paid at all? It's a post scarcity society." the other K'tharrian guard retorted. The two in the bedroom, getting louder every slap.
+"Buddy, you realize we don't get paid at all? It's a post scarcity society." the other K'tharrian guard retorted, shrugging. The two in the bedroom, getting louder every slap.
 
 "Boy they're really getting it on in there huh."
 
@@ -172,15 +170,76 @@ The connection stopped with one last slap and shouting of names.
 
 "God I fucking hope so."
 
-The sliding door opened, the General Secretary and his human husband came out the door. "Appreciate the lookout, Robin, Ilyan. Priority access to material synthesizers for one month for the both of you." Kael said as his husband leaned on him, waddling. 
+The sliding door opened, the General Secretary and his human husband came out the door. "Appreciate the lookout, Robin, Ilyan. I'll make sure they keep your names off cleaning duty." Kael said as his husband leaned on him, waddling. 
 
-"Hun, I'm hungry."
+"Hun, I'm hungry." 
 
-"After how much I fed you? You're insatiable." Kael smirked.
+"After how much I fed you? You're insatiable, Ashe." Kael smirked.
 
 The couple's voices echoed as they walked away from their quarters.
 
-"You know what. Worth it." the human said.
+"You know what. Worth it." Robin admitted.
+
+# Short Story 5: 
+
+20:30 UTC, Palace of the workers, Kareuth, Neu-Preussen. Kael walked through the corridors, Elios shadowing him while the palace guards saluted. Kael's jaw tightened and his tail flicked at every guard that saluted him. The interior of the palace was grand: white marble pillars, red carpet, and holographic busts of Marx, Engels, Lenin, Stalin, Mao, and himself lined the corridor. He reached a wall where a huge picture of him hung, his frown deepening. They continued walking until they reached the plenary hall. The Neu-Preussen party members were all there to convene as the Politburo on the recent crackdown on 'bourgeois' culture.
+
+As Kael entered the hall, it erupted into a standing ovation, and he immediately ordered the hall to stand down. He took a seat at the upper level and overlooked the hall. The Politburo meeting started at exactly 21:00 UTC as the Neu-Preussen First Secretary took his seat at the front middle of the hall.
+
+The meeting took about an hour and a half before they took a recess. Kael left the plenary hall, Elios still shadowing the General Secretary. He stepped out onto a balcony overlooking the city as bright lights lit up. He took out a cigarette and lit it, offering one to Elios. Elios refused, and Kael placed the spare back in its spot in the box.
+
+"Sir, I think the Politburo is about to meet once more."
+
+"Just five more minutes, Elios. The city lights are beautiful," Kael said as the winds blew on his face.
+
+After his cigarette, Kael and Elios went back to the plenary hall as the Politburo convened once more. The First Secretary was making a scathing indictment of the underground scene. Kael listened intently, wondering if he should intervene. Then Elios stood up.
+
+"Comrade Noel, with all due respect, I would like to say a few words.
+
+You make relentless accusation after accusation on these underground clubs, yet you preach of the diverse cultural background of your planetary state. You celebrate culture, yet you punish the ones who make it.
+
+We say the proletariat must build their own culture. They do just that, listening to music together, having a few drinks, and you repay them with fire. Your relentless crackdowns drive the people underground, so of course it thrives!
+
+Now these clubs have registered and are inspected. I have inspected one myself. They follow your rules to the letter and yet you stand here accusing them of the opposite. How dare you?!
+
+I have served under the General Secretary for years, and not once did he mention micromanaging how the proletariat should spend their free time."
+
+He stopped for a second, swallowing.
+
+"My brother... H-he runs one of these establishments. And I can damn well tell you he runs it better than any of your state-run bars."
+
+The hall stayed quiet for a beat. First Secretary Noel folded his hands on his desk.
+
+"Commander Kashrak, was it? So what you are saying is that you inspected your own brother's establishment and found it clean? Why, the Politburo is not surprised."
+
+The plenary hall burst into murmurs. Elios looked around as all eyes turned to him. For a cold-blooded creature, it sure felt warm in the hall.
+
+Kael stood up, and the hall died down immediately.
+
+"Commander. Sit. Down. I will deal with you later."
+
+"Y-yes sir." Elios sat back down, facing the floor.
+
+"Comrade Noel, I apologize for my second in command's outburst." He stood tall, his right hand in his tunic and his tail dropped down low. K'tharrian party members yipped and stopped murmuring as they saw his tail drop low. "You are right to assert that my commander's inspection was irregular. But his point still stands. Your state policy on crackdowns has driven more establishments underground than it has brought under rightful inspection. Reports pile up on my desk, and your crackdowns do nothing but fan the flame. While I approve of limits on drinking, I do not approve of your uninhibited crackdowns. Reopen registrations for underground locations, and give them incentives to do so. Until that is done and the results have come in, this meeting is adjourned."
+
+The hall burst into murmurs again as First Secretary Noel sat in his chair, contemplating. "Yes, your supremacy," Noel said, his jaw tight.
+
+Kael left the hall with his hands behind his back, Elios following a step behind, his head low to the ground.
+
+As they reached the outdoor courtyard, Kael stopped in his tracks, his tail flicking.
+
+"Commander."
+
+"Y-yes sir."
+
+"You were out of order. Never do that again." Kael looked back at him, glaring.
+
+"Y-yes sir. Won't happen again."
+
+Kael hailed the Ewigkeit to beam them back up. He loosened his shoulders and let out a deep sigh.
+
+"You weren't wrong, though, Commander. But you crossed a line," Kael said as the Ewigkeit teleported them back.
+
 
 ## Background: 
 Born *insert date* in K'tharr, he is the current General Secretary of the Free Association of Solar systems.

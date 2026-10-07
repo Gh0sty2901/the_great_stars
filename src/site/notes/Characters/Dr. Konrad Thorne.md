@@ -22,6 +22,10 @@ For a moment Konrad's grip tightened on the clipboard. He glared around the room
 
 "DO NOT TOUCH MY BELONGINGS!" he shouted as the blast doors closed behind him.
 
+# Short Story 2:
+
+
+
 # Personality
 
 # Physical Description
