@@ -47,5 +47,3 @@ Georg did not look up. "Of course, General."
 Beyond the bunker walls, the shells kept falling.
 
 # Short Story 2: 
-
-

@@ -12,13 +12,11 @@ In the bathroom, he met his own deadpan gaze in the mirror. He removed his night
 
 He folded his nightgown and carried it to his walk-in wardrobe, where green military tunics, trousers, and nightgowns hung in labeled rows. He dressed slowly, taking care not to crease the tunic or the trousers.
 
-Next came the tea. He prepared a traditional K'tharr blend through an elaborate ceremony that kept him grounded and disciplined and reminded him of his roots. Cup in hand, he crossed to his library: roughly three hundred books in labeled sections, from historical sources to scientific journals to fiction, ending in a full shelf devoted to Marxism. He drew a volume from that last shelf, settled into the chair at the center of the living room, and set his tea on the table beside him. The book was _Historical Materialism in the Time of Galactic Abundance_. He read it line by line, nodding, jotting notes in his journal.
+Next came the tea. He prepared a traditional K'tharr blend through an elaborate ceremony that kept him grounded and disciplined and reminded him of his roots. Cup in hand, he crossed to his library: roughly three hundred books in labeled sections, from historical sources to scientific journals to fiction, ending in a full shelf devoted to Marxism. He drew a volume from that last shelf, settled into the chair at the center of the living room, and set his tea on the table beside him. The book was _Historical Materialism in the Time of Galactic Abundance_ . He read it line by line, nodding, jotting notes in his journal.
 
-By 06:00 UTC+0 he had reached page 200, and his tea was finished. Ready to address the galaxy, Kael returned the book to its exact place on the shelf and left for the politburo.
+By 06:00 UTC+0 he had reached page 200, and his tea was finished. Ready to address the galaxy, Kael returned the book to its exact place on the shelf and left for the central committee.
 
 # Short story 2:
-
-18:30 UTC in Kareuth, Neu-Preussen. Work just finished for most people and the streets are only starting to get filled up. Third places start opening their doors in anticipation of visitors looking to shake off the day. One such place was the 'Low-down Rock Club', ran by a K'tharr resident named Ju'un Kashrak, brother of high commander Elios Kashrak, second in command to Kael.
 
 19:00 UTC. The MPS (Milkyway People's Ship) Ewigkeit hovered just outside of the Neu-Preussen solar system. Aboard it was Elios Kashrak, Kael and the rest of the crew. They were here for a state visit. Before teleporting in, Elios approached the General Secretary with a request. 
 
@@ -34,7 +32,7 @@ Kael thought about it for a second. He's been running the galaxy non-stop for ho
 
 "Thirty minutes. Not one more."
 
-"T-thank you sir. You won't regret this!"
+"Thank you sir. You won't regret this!"
 
 Elios and Kael teleported in, Kael donning a trench coat over his military clothes and wearing sunglasses so as not to be spotted. They enter the club in the middle of the city and it was booming with math-rock. Odd-time signatures mixed with bright guitar notes. Why this would go perfect with some tea. 
 
@@ -80,13 +78,13 @@ Elios then appears from behind the stage and approaches the general secretary.
 
 "Yes sir! My brother is running the place as ordered."
 
-"Good to hear. Let us convene with the politburo then."
+"Good to hear. Let us convene with the Central Committee then."
 
 "Lets." 
 
 # Short story 3: 
 
-20:00 UTC. The streets were cleared, autonomous road-cars still ran in the streets though with no one riding. Though there wasn't any official curfew, everyone was either home or at a third place. The walk to the People's palace in the center of the Neu-Preussen capital Kareuth was serene. 
+20:00 UTC. The streets were cleared, autonomous road-cars still ran in the streets though with no one riding. Though there wasn't any official curfew, everyone was either home or at a third place. The walk to the palace in the center of the Neu-Preussen capital Kareuth was serene. 
 
 "Commander." called out Kael to Elios as his mind looked like it wandered off. 
 
@@ -130,7 +128,7 @@ Kael stopped, his hands behind his back. Elios stopped as well looking at his su
 
 Elios eyes' lit up once more. "T-thank you Sir."
 
-"Now now, no need to be so jovial. We've got a score to settle with the politburo."
+"Now now, no need to be so jovial. We've got a score to settle with the central committee."
 
 "Yes Sir!"
 
@@ -182,17 +180,17 @@ The couple's voices echoed as they walked away from their quarters.
 
 # Short Story 5: 
 
-20:30 UTC, Palace of the workers, Kareuth, Neu-Preussen. Kael walked through the corridors, Elios shadowing him while the palace guards saluted. Kael's jaw tightened and his tail flicked at every guard that saluted him. The interior of the palace was grand: white marble pillars, red carpet, and holographic busts of Marx, Engels, Lenin, Stalin, Mao, and himself lined the corridor. He reached a wall where a huge picture of him hung, his frown deepening. They continued walking until they reached the plenary hall. The Neu-Preussen party members were all there to convene as the Politburo on the recent crackdown on 'bourgeois' culture.
+20:30 UTC, Palace of the workers, Kareuth, Neu-Preussen. Kael walked through the corridors, Elios shadowing him while the palace guards saluted. Kael's jaw tightened and his tail flicked at every guard that saluted him. The interior of the palace was grand: white marble pillars, red carpet, and holographic busts of Marx, Engels, Lenin, Stalin, Mao, and himself lined the corridor. He reached a wall where a huge picture of him hung, his frown deepening. They continued walking until they reached the plenary hall. The Neu-Preussen party members and candidates were all there to convene as the central committee on the recent crackdown on 'bourgeois' culture.
 
-As Kael entered the hall, it erupted into a standing ovation, and he immediately ordered the hall to stand down. He took a seat at the upper level and overlooked the hall. The Politburo meeting started at exactly 21:00 UTC as the Neu-Preussen First Secretary took his seat at the front middle of the hall.
+As Kael entered the hall, it erupted into a standing ovation, and he immediately ordered the hall to stand down. He took a seat at the upper level and overlooked the hall. The central committee meeting started at exactly 21:00 UTC as the Neu-Preussen First Secretary took his seat at the front middle of the hall.
 
 The meeting took about an hour and a half before they took a recess. Kael left the plenary hall, Elios still shadowing the General Secretary. He stepped out onto a balcony overlooking the city as bright lights lit up. He took out a cigarette and lit it, offering one to Elios. Elios refused, and Kael placed the spare back in its spot in the box.
 
-"Sir, I think the Politburo is about to meet once more."
+"Sir, I think the committee is about to meet once more."
 
 "Just five more minutes, Elios. The city lights are beautiful," Kael said as the winds blew on his face.
 
-After his cigarette, Kael and Elios went back to the plenary hall as the Politburo convened once more. The First Secretary was making a scathing indictment of the underground scene. Kael listened intently, wondering if he should intervene. Then Elios stood up.
+After his cigarette, Kael and Elios went back to the plenary hall as the Central Committee convened once more. The First Secretary was making a scathing indictment of the underground scene. Kael listened intently, wondering if he should intervene. Then Elios stood up.
 
 "Comrade Noel, with all due respect, I would like to say a few words.
 
@@ -210,7 +208,7 @@ He stopped for a second, swallowing.
 
 The hall stayed quiet for a beat. First Secretary Noel folded his hands on his desk.
 
-"Commander Kashrak, was it? So what you are saying is that you inspected your own brother's establishment and found it clean? Why, the Politburo is not surprised."
+"Commander Kashrak, was it? So what you are saying is that you inspected your own brother's establishment and found it clean? Why, the Neu-Preussen Party is not surprised."
 
 The plenary hall burst into murmurs. Elios looked around as all eyes turned to him. For a cold-blooded creature, it sure felt warm in the hall.
 
@@ -220,7 +218,7 @@ Kael stood up, and the hall died down immediately.
 
 "Y-yes sir." Elios sat back down, facing the floor.
 
-"Comrade Noel, I apologize for my second in command's outburst." He stood tall, his right hand in his tunic and his tail dropped down low. K'tharrian party members yipped and stopped murmuring as they saw his tail drop low. "You are right to assert that my commander's inspection was irregular. But his point still stands. Your state policy on crackdowns has driven more establishments underground than it has brought under rightful inspection. Reports pile up on my desk, and your crackdowns do nothing but fan the flame. While I approve of limits on drinking, I do not approve of your uninhibited crackdowns. Reopen registrations for underground locations, and give them incentives to do so. Until that is done and the results have come in, this meeting is adjourned."
+"Comrade Noel, I apologize for my second in command's outburst." He stood tall, his right hand in his tunic and his tail dropped down low. K'tharrian party members yipped and stopped murmuring as they saw his tail drop low. "You are right to assert that my commander's inspection was irregular. But his point still stands. Your state policy on crackdowns has driven more establishments underground than it has brought under rightful inspection. Reports pile up on my desk, and your crackdowns do nothing but fan the flame. While I approve of limits on drinking, I do not approve of your uninhibited raids. Reopen registrations for underground locations, and give them incentives to do so. Send in inspectors with no personal stakes to take count of these locations. Until that is done and the results have come in, this meeting is adjourned."
 
 The hall burst into murmurs again as First Secretary Noel sat in his chair, contemplating. "Yes, your supremacy," Noel said, his jaw tight.
 
@@ -240,6 +238,39 @@ Kael hailed the Ewigkeit to beam them back up. He loosened his shoulders and let
 
 "You weren't wrong, though, Commander. But you crossed a line," Kael said as the Ewigkeit teleported them back.
 
+# Short Story 6
+
+16:00 UTC, Berlin Labor Camp, Terra. Kael, flanked by Elios, inspected the facility, ensuring that the counterrevolutionaries were reeducated properly. From the walls, Kael looked at the mines as state enemies were put to work, guarded by K'tharrs and humans alike armed to the teeth. The mines were merely symbolic, to teach them what it's like to be a real proletarian.
+
+Kael scanned one prisoner he had read about: Jackson, 20 years old, college student. He had tried to sabotage a public material synthesizer and was placed under arrest a day later. Kael's tail flicked. What a shame. Elios approached the railing next to Kael. He looked like he wanted to say something, but couldn't.
+
+"Commander?"
+
+"Yes sir?"
+
+"What is in your mind?"
+
+"Sir?"
+
+"I can read your face, Elios. You have something you want to say."
+
+"O-oh uhm. Well I was just.."
+
+"Your brother?"
+
+".. Yes"
+
+"Your brother follows the rules, Elios. He is no counterrevolutionary."
+
+"But who defines what a counterrevolutionary is sir?"
+
+Kael took a beat to think about it. 
+
+"The people do, Elios. People's tribunals and revolutionary tribunals that are overseen by the best of the best of society, guided by Marxism and Leninism, exist for a reason."
+
+Elios stayed silent, unsatisfied, probably thinking that his brother's safety is on the whims of someone's interpretation of Lenin.
+
+"We have rigid curriculums, Elios. Our best do not deviate from the path of Marxism."
 
 ## Background: 
 Born *insert date* in K'tharr, he is the current General Secretary of the Free Association of Solar systems.

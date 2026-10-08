@@ -5,7 +5,7 @@
 
 # Short Stories:
 > Note, every conversation is in K'tharrian. Just translated to english for convenience. 
-> 
+
 18:30 UTC, Ewigkeit, just outside the J-31 Solar System. Elios was in his quarters getting prepared to land at Neu-Preussen with the General secretary for a state visit. They were there to discuss the recent crackdowns on 'bourgeois' culture. He asked personally to join the discussion as he thought about his brother who ran an underground club in Kareuth. 
 
 18:50 UTC, He leaves his quarters and heads for the teleportation room where Kael was talking to the engineers about the landings. He stopped just at the corridor before straightening up his tunic. 

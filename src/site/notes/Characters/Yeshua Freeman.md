@@ -78,9 +78,9 @@ Ja'ax clutched his shirt. "Holy shit, dude."
 
 # Short Story 2:
 
-21:00 UTC, Kareuth, Neu-Preussen. The streets were cleared, everyone's gone home at this point. The automated road-cars still ran, and Yeshua was the only one riding. Yeshua took a drag off his menthol cigarette as he rode home, dread in his heart, he's always had that feeling. He watched as high rise apartments and agroparks went by, wishing that he lived anywhere else. 
+21:00 UTC, Kareuth, Neu-Preussen. The streets were cleared, everyone's gone home at this point. The automated road-cars still ran, and Yeshua was the only one riding. Yeshua took a drag off his menthol cigarette as he rode home, dread in his heart, he's always had that feeling going home. He watched as high rise apartments and agroparks went by, wishing that he lived anywhere else. 
 
-21:20 UTC, Caelor Street. He walked to his apartment complex, taking count of the steps it took to get there. 10, 20, 30, it wasn't far away from where he got off, at least he could get away fast whenever he wanted to. He popped a pill of Doc Jack's formula to clear his head. Doc Jack had always been his favorite professor, he'd always looked out for Yeshua. As he entered the building, a K'tharrian night guard greeted him in K'tharrian, he didn't know how to speak the language but he'd known the greeting at this point. 
+21:20 UTC, Caelor Street. He walked to his apartment complex, taking count of the steps it took to get there. 10, 20, 30, it wasn't far away from where he got off, at least he could get away fast whenever he wanted to. He popped a pill of Doc Jack's formula to clear his head. Doc Jack had always been his favorite professor, he'd always looked out for Yeshua. As he entered the building, a K'tharrian night guard greeted him in K'tharrian, he didn't know how to speak the language but he'd memorized the greeting at this point. 
 
 21:30 UTC, Yeshua's apartment. As he approached the door, it was silent. He hesitated to grab the knob. He takes a deep breath and opens it. It was dark, his parents were gone, good, he thought. He rushed towards his room to make sure his parents didn't catch him. He opens the door and was greeted by his twin siblings, Cecil, and Cherry. 
 
@@ -98,15 +98,15 @@ Ja'ax clutched his shirt. "Holy shit, dude."
 
 "Do we have tooo?"
 
-"Yes it's getting past your bedtime. Don't want ma and pa to catch you two awake."
+"Yes it's getting past your bedtime. Don't want ma and pa to catch you two awake." Yeshua picked Cherry up and tucked her into bed. Cecil went on his own.
 
-"Oookayyy." as the two got in their bunk beds. 
+"Oookayyy."  
 
 "Alright go to sleep you two. I'll guard the door for boogeymen."
 
 "Yay!"
 
-As the twins got into bed, Yeshua set up his laptop to get online. He booted up Valgatory, a MOBA. With the ariadne network you could play with guys across the galaxy with almost no latency. He made sure to stay quiet as the twins slept. He kept one earphone off so he could hear when his parents came home.
+As the twins got into bed, Yeshua set up his laptop to get online. He booted up Valgatory, a MOBA Ja'ax introduced him to. With the ariadne network you could play with guys across the galaxy with no latency. He made sure to stay quiet as the twins slept. He kept one earphone off so he could hear when his parents came home.
 
 As he played a couple of rounds of rank, he heard the door open. His parents were home from whatever rundown underground bar they came from. He turned down the brightness of his laptop, hoping his parents were too drunk to check in their room. 
 
