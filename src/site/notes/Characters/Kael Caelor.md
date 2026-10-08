@@ -240,7 +240,7 @@ Kael hailed the Ewigkeit to beam them back up. He loosened his shoulders and let
 
 # Short Story 6
 
-16:00 UTC, Berlin Labor Camp, Terra. Kael, flanked by Elios, inspected the facility, ensuring that the counterrevolutionaries were reeducated properly. From the walls, Kael looked at the mines as state enemies were put to work, guarded by K'tharrs and humans alike armed to the teeth. The mines were merely symbolic, to teach them what it's like to be a real proletarian.
+16:00 UTC, Berlin Labor Camp, Terra. Kael, flanked by Elios, inspected the facility, ensuring that the counterrevolutionaries were reeducated properly. From the walls, Kael looked at the mines as state enemies were put to work, guarded by K'tharrs and humans alike armed with chaos-energy rifles. The mines were merely symbolic, to teach them what it's like to be a real proletarian.
 
 Kael scanned one prisoner he had read about: Jackson, 20 years old, college student. He had tried to sabotage a public material synthesizer and was placed under arrest a day later. Kael's tail flicked. What a shame. Elios approached the railing next to Kael. He looked like he wanted to say something, but couldn't.
 
