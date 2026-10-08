@@ -244,7 +244,7 @@ Kael hailed the Ewigkeit to beam them back up. He loosened his shoulders and let
 
 Kael scanned one prisoner he had read about: Jackson, 20 years old, college student. He had tried to sabotage a public material synthesizer and was placed under arrest a day later. Kael's tail flicked. What a shame. Elios approached the railing next to Kael. He looked like he wanted to say something, but couldn't.
 
-"Commander?"
+"Commander."
 
 "Yes sir?"
 
@@ -271,6 +271,95 @@ Kael took a beat to think about it.
 Elios stayed silent, unsatisfied, probably thinking that his brother's safety is on the whims of someone's interpretation of Lenin.
 
 "We have rigid curriculums, Elios. Our best do not deviate from the path of Marxism."
+
+# Short Story 7: 
+
+13:00 UTC, Berlin Tribunal Court, Terra. A human accused of treason was put on trial. Supposedly he was the ring leader of a humanist bloc that plotted state violence against extraterrestrial beings, K'tharrs, Vorax, Silicans, Vaen, etc. Kael and Elios was in the upper balcony, overlooking the tribunal to observe.
+
+It was practically a show trial. The defendant couldn't answer the indictments. The evidence was damning, all the papers traced back to the man, it was too clean. After two hours of scathing and relentless indictment by the judge, the man was to be put to death by firing squad in a public execution to scare off any remaining humanists. Kael watched it with a deadpan gaze, his tail staying down low. Elios watched with satisfaction, his tail up high. 
+
+Kael and Elios leave the court to return back to the Berlin Palace to debrief. 
+
+14:00 UTC, Berlin Palace, Terra. They took a private vehicle flanked by armored cars to the palace. Unlike in other planets, Terra was still dominated by private vehicles. Kael reaches his office and Elios follows right behind him. A stack of reports from all over the milkyway piled on his desk. Kael sighs and looks back at Elios.
+
+"Commander."
+
+"Yes sir!"
+
+"What did you make of that trial?"
+
+"It was a clean trial sir.. The humanist bloc was sloppy and they just gave away their top man."
+
+Kael moves to his chair at his desk and grabs a report from the top, putting on his reading glasses.
+
+"All evidence point to one man by a clandestine organization running for years. If you ask me that's too tidy." he signs a report and puts it in a different pile, square and clean.
+
+"But sir the signatures and the receipts.."
+
+"The defendant wasn't able to answer a single question either. Every single signature, every single pamphlet, every map led to one man."
+
+".."
+
+"What I'm saying is we got bullshitted by those damned humanists, commander."
+
+Elios eyes widen, he'd never heard the General Secretary cuss in his 6 years under his command. 
+
+"Ring leader is still out there. I want you to figure it out."
+
+"M-me?"
+
+"Oh I'm sorry commander, is that too big a task for you?" he looked up, tail down low, giving Elios a death glare.
+
+Elios broke a sweat and swallowed.
+
+"N-no of course not sir. I will get right to it."
+
+"Good. You are dismissed."
+
+Elios salutes and turns towards the door. 
+
+"Oh and before you leave, call Ashe in will you? I need to relieve some stress."
+
+"Y-yes sir." Elios left the office and took a deep breath, dreading the huge task given to him. Knowing Ashe was about to get wrecked was one thing, figuring out a years-old organization was another. He'd have to work through sleepless nights.
+
+# Short Story 8: 
+
+12:00 UTC, Galactic institute for Marxist studies, Sol. It was full of all species around the Milkyway to the Andromedas. Vorax, hive like creature that travelled in packs roamed the corridors. Vaens, huge avians flew across the halls. K'tharrians, humans and Andromedan observers conversed around tables. It was a melting pot of the universe. Kael and Elios visited to deepen their marxist knowledge. 
+
+People turned to look, smile and bow at the General Secretary as they roamed, Kael's tail flicking. They reach an isolated part of the library, books from marxist scholars around the galaxy paved the shelves. Kael grabs one, it was an original text from the Philippines by one Jose Maria Sison "Philippine Society and Revolution". He puts on his reading glasses and cracked open the book as they moved to a table. 
+
+"Elios?"
+
+"Yes sir?"
+
+"Have you ever felt the fire of revolution in your heart?"
+
+"Of course sir, we live it through our constant cultural revolution."
+
+Kael flips a page not looking up once, reading the book line by line. 
+
+"That is correct, Commander."
+
+"O-oh t-thank-"
+
+"That is what I would say if I was your teacher, your labor camp guard, or a judge in a tribunal." he keeps his head low, only moving his eyes to meet Elios' gaze. Elios breaks a sweat.
+
+"Sir?"
+
+"Sison was a true revolutionary. He correctly identified the problems within the Philippine society by applying Mao's logic in his own local conditions."
+
+Elios stayed silent.
+
+Kael passes him the book.
+
+"I want you to read this book and report back to me when you finish it."
+
+Kael stands up from his chair, Elios felt like Kael was taller than he'd ever been.
+
+"Let's go meet the Andromedans."
+
+"Y-yes sir."
+
 
 ## Background: 
 Born *insert date* in K'tharr, he is the current General Secretary of the Free Association of Solar systems.

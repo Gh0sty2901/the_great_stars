@@ -18,7 +18,7 @@ He reached the front yard of the campus, where the smell of fresh food hit the a
 
 "You know what it is big boy! Party last night was off the chains, aha. We was drinking til the end of the night!" Yeshua grinned, his words making Ja'ax's scales twitch with irritation.
 
-"Dude you know we're not supposed to drink on a school night. You know if they catch you hung over, its your ass. Plus we have an exam today." Ja'ax shot back, flickiProclamation no 21ng his tail in annoyance. "You know they've been cracking down on 'bourgeois culture' in Kareuth. The Central Committee announced that last week".
+"Dude you know we're not supposed to drink on a school night. You know if they catch you hung over, its your ass. Plus we have an exam today." Ja'ax shot back, flicking his tail in annoyance. "You know they've been cracking down on 'bourgeois culture' in Kareuth. The Central Committee announced that last week".
 
 "Nah bruh, its fine." Yeshua snickered, wiping his nose. Ja'ax rolling his eyes at his bum of a friend "I got this special formulation from Doc Jack that clears your head up immediately."
 
@@ -62,7 +62,7 @@ Ja'ax, sat at a bar stool, tapping along his glass of soda to the rhythm of the 
 
 "Yo. Yo, dude. Look at trench coat over there. Ain't that literally general secretary Kael of the Galaxy slumming it with the regulars as if it isn't a big deal?"
 
-Ja'ax shifted his look over to the trench coated person. Dark red scales gleamed through his wrists and collar, one boot tapping to the beat of the song. Ja'ax only knew one person who had scales that color. He spat out his soda. 
+Ja'ax followed Yeshua's fingers to where he was pointing, a trench coated person. Then he saw it. Dark red scales gleamed through his wrists and collar, one boot tapping to the beat of the song. Ja'ax only knew one person who had scales that color. He spat out his soda. 
 
 "Holy shit it is. Dark red scales, can't miss it. What's he doing here? Didn't he take command of the Ewigkeit?"
 
@@ -88,15 +88,19 @@ He watched Yeshua lean toward the general secretary and point back at him. Kael 
 
 Ja'ax turned around to face the towering reptile. He was standing a pace away from him.
 
-"Your friend here told me about you. I've read your name in some interesting reports from your school as well."
+The General Secretary spoke to him purely in K'tharrian, he was processing what he said but didn't hear a word. He'd heard something about a report. _Say something._
 
 "W-what? R-really?"
 
-"Correct. If you keep it up, you might be able to work at sector -200. You'd make a great scientist there."
+_Not that_
 
-"T-thank you s-sir."
+Then he heard it, Sector -200, in his mother's tongue. The General Secretary had just sponsored him to Sector -200. _You better say something cooler this time._
 
-"Well you boys stay out of trouble now. I like what I'm seeing here so I'll send a notice to the Neu-preussen Central committee that this location is a credit to the district." Kael said to them in German once more with a nod before going back to his stool.
+"T-Thank you Sir."
+
+_Fuck_
+
+"Well you boys stay out of trouble now. I like what I'm seeing here so I'll send a notice to the Neu-preussen Central committee that this location is a credit to the district." He said in German, he heard the words now. It was the first time someone outside his home pronounced his name right, and it was the General Secretary.
 
 Ja'ax clutched his shirt, his heart beating hard and loud. "Holy shit, dude." His scales fluttered in shock.
 
