@@ -1,6 +1,7 @@
 ---
-{"dg-publish":true,"permalink":"/characters/kael-caelor/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/characters/kael-caelor/","dg-note-properties":{"permalink":"/characters/kael-caelor/"}}
 ---
+
 
 #thegreatstars #characters
 
@@ -362,11 +363,12 @@ Kael stands up from his chair, Elios felt like Kael was taller than he'd ever be
 
 
 ## Background: 
-Born *insert date* in K'tharr, he is the current General Secretary of the Free Association of Solar systems.
+Born April 12, 2200 in K'tharr, he is the current General Secretary of the Free Association of Solar systems. 
 ## Physical Description
 Height: 2.06 m
 Build: Stocky
 Eyes: Dark red
+Age: 130 by 2330
 Scales: Dark Red with a penguin pattern from his chin to crotch colored beige
 Usual outfit: Stalin outfit
 

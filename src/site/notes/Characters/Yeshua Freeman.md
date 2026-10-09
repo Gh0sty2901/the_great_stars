@@ -1,6 +1,7 @@
 ---
-{"dg-publish":true,"permalink":"/characters/yeshua-freeman/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/characters/yeshua-freeman/","dg-note-properties":{"permalink":"/characters/yeshua-freeman/"}}
 ---
+
 
 
 # Short stories: 

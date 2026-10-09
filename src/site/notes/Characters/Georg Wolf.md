@@ -1,6 +1,7 @@
 ---
-{"dg-publish":true,"permalink":"/characters/georg-wolf/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/characters/georg-wolf/","dg-note-properties":{"permalink":"/characters/georg-wolf/"}}
 ---
+
 
 Iron Secretary - Tyrant - Genocide
 

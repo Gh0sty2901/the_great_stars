@@ -1,6 +1,7 @@
 ---
-{"dg-publish":true,"permalink":"/characters/elios-kashrak/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/characters/elios-kashrak/","dg-note-properties":{"permalink":"/characters/elios-kashrak/"}}
 ---
+
 
 
 # Short Stories:
@@ -110,7 +111,7 @@ Kael looks up at the Elios,
 
  # Short Story 2: 
 
-13:00 UTC, Berlin Palace, Terra. Elios sat at a desk buried in trial papers, going through every signature, receipt and pamphlet again. All of it led to one man, just like Kael said. But a courier receipt kept bugging him. It was countersigned by a woman, Lena Vogt, and her name showed up nowhere else in the case. Not on the pamphlets, not on the maps. A name that clean in a file that tidy was worth following.
+13:40 UTC, Berlin Palace, Terra. Elios sat at a desk buried in trial papers, going through every signature, receipt and pamphlet again. All of it led to one man, just like Kael said. But a courier receipt kept bugging him. It was countersigned by a woman, Lena Vogt, and her name showed up nowhere else in the case. Not on the pamphlets, not on the maps. A name that clean in a file that tidy was worth following.
 
 _Let's see where you go._
 

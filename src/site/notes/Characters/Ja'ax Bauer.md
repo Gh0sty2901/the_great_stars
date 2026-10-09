@@ -1,9 +1,10 @@
 ---
-{"dg-publish":true,"permalink":"/characters/ja-ax-bauer/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/characters/ja-ax-bauer/","dg-note-properties":{"permalink":"/characters/ja-ax-bauer/"}}
 ---
 
+
 #thegreatstars #characters 
-World eater
+ # World eater
 
 # Short Story: 
 The city of Kareuth was bustling with life yet quiet. Unlike on Terran, there was a distinct lack of private motor vehicles. Instead, the inhabitants of Neu-Preussen rode bikes, fusion-cell powered busses, road-cars and walked to their destinations. You could get from one end of the city to the other in only 15 minutes without owning a private vehicle. People mixed freely in the city. Cafe tables were full of people who didn't know each other, people greet each other, and cultural performers lingered in the streets. The people were happy, and it shows, humans, hybrids and k'tharrians waved and smiled at each other and congregated around performers.

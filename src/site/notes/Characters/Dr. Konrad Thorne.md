@@ -1,6 +1,7 @@
 ---
-{"dg-publish":true,"permalink":"/characters/dr-konrad-thorne/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/characters/dr-konrad-thorne/","dg-note-properties":{"permalink":"/characters/dr-konrad-thorne/"}}
 ---
+
 
 The sun prophet
 
