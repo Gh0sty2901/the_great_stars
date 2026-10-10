@@ -361,6 +361,72 @@ Kael stands up from his chair, Elios felt like Kael was taller than he'd ever be
 
 "Y-yes sir."
 
+# Short Story 8: 
+
+14:30 UTC, New York City, Terra. The streets were bustling, high rise offices were repurposed into high density living spaces. Streets filled with people ranging from Humans to K'tharr while Vaens flew overhead. Fusion powered cars and busses roared on the road as they tumbled through. Street vendors filled the air with the smell of falafels, gyros, qwek qwek, and other street delicacies from around the galaxy. Kael was riding through the street in a private vehicle flanked by armored cars, he was here to visit Aris Thorne. 
+
+15:00 UTC, Aris Thorne's appartment. Kael knocks on the door, he wasn't accompanied by Elios nor anybody this time, it was a personal visit. Aris opens the door, Lab coat over black shirt and black pants. His age was showing through his grey hair, at least it was still luscious and full. His room was cluttered with papers full of graphs and calculations. 
+
+"Oh Mr. Caelor. What a surprise! To what do I owe this visit to?"
+
+"Just wanted to see you. Seeing if your retirement has served you well."
+
+"Couldn't be better Mr. Caelor!" He gave a sincere smile. "The ol' noggin is recovering," he knocked on his head, "I'm starting to regain my memories. Come on in, I'll make you tea."
+
+"Thank you, that would be nice." Kael lowers his head not to bump it on the doorway. He takes note of his appartment, it was messy yet organized. He takes a look at a whiteboard full of calculations, it was beautifully organized. The calculations too.. He wasn't much of a mathematician but he'd learned how to read notation during his time.
+
+"How are you feeling Aris?"
+
+"Never better! Therapy has really helped. Becoming a professor has been great help on me too." Aris said as he worked the stove and boiled some water.
+
+Kael takes a seat on the couch, it was soft yet firm, his butt formed around the cushion. 
+
+"You working on anything lately?"
+
+"Oh no, that's way past me now. Just been practicing and sharpening my mind is all. Sorry about the paper mess."
+
+"It's alright, you ever thought about using a computer or a holoboard instead? You could save your work on your holoboard for reference later you know."
+
+"Oh please, you know me better than that. I prefer the physical!"
+
+"Right." Aris served him the tea. He takes a sip, Kael's tail going up as he drank it. 
+
+"Good right?"
+
+"It is sufficient."
+
+"Since I'm no longer working as a full time scientist I've been learning quite a few skills. Tea making was one of em'"
+
+"Glad to hear Aris." he sets down the teacup, square on the saucer.
+
+"So, what are you really here for my friend." Aris asked, he's still sharp. He knew it wasn't just a regular visit.
+
+"I came here to apologize."
+
+"Oh please, past is past. It was necessary anyways. My brain.. My ideas.. it was too dangerous."
+
+"We still could have solved it a different way."
+
+"I'm afraid not," his face dropping into a frown. "It really was the only way."
+
+The room fell into silence, it was deafening.
+
+"Welp, no need to delve into the past. How are you and Ashe?"
+
+"Good. Their medication has been making them happier. It's been making me happier too if you know what I mean." Kael said with a slight smirk as he took a sip.
+
+Dr. Aris Thorne giggled a bit. "Heard you. And your second-in-command Elios?"
+
+"Good as well, been teaching him a thing or two."
+
+"Great to hear."
+
+Kael looks at his wrist, "Well, this was a pleasant visit Aris. But I believe I must go."
+
+"My pleasure Mr. Caelor. Visit anytime! Perhaps the next time you can teach me how to make K'tharr tea."
+
+"Will do Aris, will do."
+
 
 ## Background: 
 Born April 12, 2200 in K'tharr, he is the current General Secretary of the Free Association of Solar systems. 

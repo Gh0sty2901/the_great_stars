@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/characters/yeshua-freeman/","dg-note-properties":{"permalink":"/characters/yeshua-freeman/"}}
 ---
 
-
+Tragic Party Animal - Blessed
 
 # Short stories: 
 
@@ -64,9 +64,9 @@ Yeshua approached the General secretary, a little nervous, a little excited. He 
 
 "Ja'ax, sounds familiar. I believe I've read about him in a couple of reports from this district's university."  
 
-Yeshua, who was swaying side by side, heard from the General Secretary, "You on the other hand, you need to watch yourself." Yeshua felt heat rise up from his chest at the warning. His ears red, he almost ran out of breath.
+Yeshua, who was swaying side by side, heard from the General Secretary, "You need to watch yourself." Yeshua felt heat rise up from his chest at the warning. His ears red, he almost ran out of breath.
 
-The General Secretary then stood up and approached the hybrid. *uh oh. maybe I might've gotten him in trouble* thought Yeshua. 
+The General Secretary then stood up and approached his best friend. *Uh oh. I might've gotten him in trouble*. 
 
 He watched as the General Secretary talk to Ja'ax in K'tharrian, he couldn't understand a thing. All he could think of was that he just gave away his friend.
 
@@ -81,37 +81,10 @@ Ja'ax clutched his shirt. "Holy shit, dude."
 
 21:00 UTC, Kareuth, Neu-Preussen. The streets were cleared, everyone's gone home at this point. The automated road-cars still ran, and Yeshua was the only one riding. Yeshua took a drag off his menthol cigarette as he rode home, dread in his heart, he's always had that feeling going home. He watched as high rise apartments and agroparks went by, wishing that he lived anywhere else. 
 
-21:20 UTC, Caelor Street. He walked to his apartment complex, taking count of the steps it took to get there. 10, 20, 30, it wasn't far away from where he got off, at least he could get away fast whenever he wanted to. He popped a pill of Doc Jack's formula to clear his head. Doc Jack had always been his favorite professor, he'd always looked out for Yeshua. As he entered the building, a K'tharrian night guard greeted him in K'tharrian, he didn't know how to speak the language but he'd memorized the greeting at this point. 
+21:20 UTC, Caelor Street. He walked to his apartment complex, taking count of the steps it took to get there. Ten, twenty, Fourty, it wasn't far away from where he got off, at least he could get away fast whenever he wanted to. He popped a pill of Doc Jack's formula to clear his head. Doc Jack had always been his favorite professor, he'd always looked out for Yeshua. As he entered the building, a K'tharrian night guard greeted him in K'tharrian, he didn't know how to speak the language but he'd memorized the greeting at this point. 
 
-21:30 UTC, Yeshua's apartment. As he approached the door, it was silent. He hesitated to grab the knob. He takes a deep breath and opens it. It was dark, his parents were gone, good, he thought. He rushed towards his room to make sure his parents didn't catch him. He opens the door and was greeted by his twin siblings, Cecil, and Cherry. 
-
-"YESHUAAA." The siblings exclaimed and gave their big brother a hug. 
-
-"Hey you two ragamuffins, you didn't cause any trouble for ma and pa did ya?"
-
-"Noooooo." They said in unison, shaking their heads, they'd always say things in unison.
-
-"Well have they fed you two?"
-
-"No. We had to use the material synthesizer to make food." Cecil said, Yeshua figured he's the one who worked the synth. 
-
-"Typical, well you two get ready for bed."
-
-"Do we have tooo?"
-
-"Yes it's getting past your bedtime. Don't want ma and pa to catch you two awake." Yeshua picked Cherry up and tucked her into bed. Cecil went on his own.
-
-"Oookayyy."  
-
-"Alright go to sleep you two. I'll guard the door for boogeymen."
-
-"Yay!"
-
-As the twins got into bed, Yeshua set up his laptop to get online. He booted up Valgatory, a MOBA Ja'ax introduced him to. With the ariadne network you could play with guys across the galaxy with no latency. He made sure to stay quiet as the twins slept. He kept one earphone off so he could hear when his parents came home.
-
-As he played a couple of rounds of rank, he heard the door open. His parents were home from whatever rundown underground bar they came from. He turned down the brightness of his laptop, hoping his parents were too drunk to check in their room. 
-
-Footsteps passed by their door, please god don't come in. A door past their room opened, thank god. Yeshua let out a deep sigh and kept playing his game, ending with a win streak.
+21:30 UTC, 
 
 # Short Story 3: 
+
 
