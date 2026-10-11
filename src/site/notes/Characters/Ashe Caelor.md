@@ -117,6 +117,7 @@ Ashe enters the manager room. Ju’un was at his desk, buried in paperwork. A go
 “You don’t get a say in that.” Ashe put the certificate down. The club was clean, the drink limit was enforced, and the paperwork was in order. She let herself out. The band on stage was at the tail end of "Heart-Shaped box". The singer sounds like he may have had one too many drinks, she filed that away.
 
 ## Short Story 4:
+
 18:30 UTC, General Secretary’s Quarters, Ewigkeit. Ashe sat on the edge of the bed in a skin-tight red dress, strapless, with a high slit up one leg. Her bare shoulders gleamed under the lamp. Across the room, Kael took off his uniform piece by piece and hung each one square in the closet. Ashe giggled.
 
 “What’s funny, love?”
@@ -221,9 +222,7 @@ Robin nodded to the floor. Ilyan nodded to the ceiling. Ashe’s stomach growled
 
 “Hun, I’m hungry.”
 
-“After how much I fed you? You’re insatiable, Ashe.”
-
-
+“After how much I fed you? You’re insatiable, Ashe
 
 # Background
 Nonbinary husband to the most powerful man in the galaxy, Ashe Caelor works at the people's intelligence agency. She was born in the land of the Philippines at November 12, 2300. 
