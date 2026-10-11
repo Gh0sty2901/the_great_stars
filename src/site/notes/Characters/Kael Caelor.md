@@ -361,71 +361,73 @@ Kael stands up from his chair, Elios felt like Kael was taller than he'd ever be
 
 "Y-yes sir."
 
-# Short Story 8: 
+# Short Story 9: 
 
-14:30 UTC, New York City, Terra. The streets were bustling, high rise offices were repurposed into high density living spaces. Streets filled with people ranging from Humans to K'tharr while Vaens flew overhead. Fusion powered cars and busses roared on the road as they tumbled through. Street vendors filled the air with the smell of falafels, gyros, qwek qwek, and other street delicacies from around the galaxy. Kael was riding through the street in a private vehicle flanked by armored cars, he was here to visit Aris Thorne. 
+14:30 UTC, Manhattan, New York City, Terra. Kael was riding through the street in a private vehicle flanked by armored cars. He looked out at his surroundings as people flooded the walkways, street vendors sold food from across the galaxy, and high rise office buildings were repurposed as high density housing. He wasn’t here for any of those. He was here to visit an old friend.
 
-15:00 UTC, Aris Thorne's appartment. Kael knocks on the door, he wasn't accompanied by Elios nor anybody this time, it was a personal visit. Aris opens the door, Lab coat over black shirt and black pants. His age was showing through his grey hair, at least it was still luscious and full. His room was cluttered with papers full of graphs and calculations. 
+15:00 UTC, 14th street apartment building. Kael knocked on the door. He wasn’t accompanied by Elios or anybody this time. The armored cars and the security detail had parked two blocks away. It was a personal visit. A man opened the door, a lab coat over a black shirt and black pants. His age was showing through his grey hair, though at least it was still luscious and full. Round glasses rested on the bridge of his nose, making him look like a stereotypical egghead. His room was cluttered with papers full of graphs and calculations.
 
-"Oh Mr. Caelor. What a surprise! To what do I owe this visit to?"
+“Oh, Mr. Caelor. What a surprise! To what do I owe this visit?”
 
-"Just wanted to see you. Seeing if your retirement has served you well."
+“Good afternoon, Doctor Thorne. Just wanted to see you. Seeing if your retirement has served you well.”
 
-"Couldn't be better Mr. Caelor!" He gave a sincere smile. "The ol' noggin is recovering," he knocked on his head, "I'm starting to regain my memories. Come on in, I'll make you tea."
+“Couldn’t be better, Mr. Caelor!” He gave a sincere smile. “The ol’ noggin is recovering. Starting to remember how to solve the Yang-Mills existence problem now! Undergraduate stuff, I know, used to do it in my head... Well anyways, come on in! I’ll make you tea.”
 
-"Thank you, that would be nice." Kael lowers his head not to bump it on the doorway. He takes note of his appartment, it was messy yet organized. He takes a look at a whiteboard full of calculations, it was beautifully organized. The calculations too.. He wasn't much of a mathematician but he'd learned how to read notation during his time.
+“Thank you, that would be nice.” Kael lowered his head not to bump it on the doorway. He took note of his apartment. It was messy yet organized. He took a look at a whiteboard full of calculations, it was beautifully organized. The calculations too... He wasn’t much of a mathematician, but he’d learned how to read notation reading science journals.
 
-"How are you feeling Aris?"
+“How are you feeling, Aris?”
 
-"Never better! Therapy has really helped. Becoming a professor has been great help on me too." Aris said as he worked the stove and boiled some water.
+“Never better! Therapy has really helped. I teach high school and undergraduate classes now, but I bet you already know that, don’t you?” Aris said as he worked the stove and boiled some water.
 
-Kael takes a seat on the couch, it was soft yet firm, his butt formed around the cushion. 
+“I have read it in a report, yes.” Kael took a seat on the couch. The cushion gave beneath him, soft yet firm.
 
-"You working on anything lately?"
+“Besides teaching, you working on anything lately?” Kael eyed the whiteboard.
 
-"Oh no, that's way past me now. Just been practicing and sharpening my mind is all. Sorry about the paper mess."
+“Oh no, that’s way past me now. Just been practicing and sharpening my mind is all. Sorry about the paper mess.”
 
-"It's alright, you ever thought about using a computer or a holoboard instead? You could save your work on your holoboard for reference later you know."
+“It’s alright. You ever thought about using a computer or a holoboard instead? You could save your work on your holoboard for reference later, you know.”
 
-"Oh please, you know me better than that. I prefer the physical!"
+“Oh please, you know me better than that. I prefer the physical!”
 
-"Right." Aris served him the tea. He takes a sip, Kael's tail going up as he drank it. 
+“Right.”
 
-"Good right?"
+Aris served him the tea. Kael took a sip, his tail going up as he drank it.
 
-"It is sufficient."
+“Good, right?”
 
-"Since I'm no longer working as a full time scientist I've been learning quite a few skills. Tea making was one of em'"
+“It is sufficient.”
 
-"Glad to hear Aris." he sets down the teacup, square on the saucer.
+“Since I’m no longer working as a full time scientist, I’ve been learning quite a few skills. Tea making was one of ’em.”
 
-"So, what are you really here for my friend." Aris asked, he's still sharp. He knew it wasn't just a regular visit.
+“Glad to hear, Aris.” He set down the teacup, square on the saucer.
 
-"I came here to apologize."
+“So, what are you really here for, my friend?” Aris asked, still sharp enough to know this wasn’t a regular visit.
 
-"Oh please, past is past. It was necessary anyways. My brain.. My ideas.. it was too dangerous."
+“I came here to apologize.”
 
-"We still could have solved it a different way."
+“Oh please, past is past. It was necessary anyways. My brain... My ideas... It was too dangerous.”
 
-"I'm afraid not," his face dropping into a frown. "It really was the only way."
+“We still could have solved it a different way.”
 
-The room fell into silence, it was deafening.
+“I’m afraid not,” his face dropping into a frown. “It really was the only way.”
 
-"Welp, no need to delve into the past. How are you and Ashe?"
+Kael’s tail sank to the floor. He looked down at his tea and said nothing. The room fell into silence, it was deafening.
 
-"Good. Their medication has been making them happier. It's been making me happier too if you know what I mean." Kael said with a slight smirk as he took a sip.
+“Welp, no need to delve into the past. How are you and Ashe?”
 
-Dr. Aris Thorne giggled a bit. "Heard you. And your second-in-command Elios?"
+“Good. Estrogen has been making them happier. It’s been making me happier too, if you know what I mean,” Kael said with a slight smirk as he took a sip.
 
-"Good as well, been teaching him a thing or two."
+Aris chuckled a bit. “Heard you. And your second-in-command, Elios?”
 
-"Great to hear."
+“Good as well. Been teaching him a thing or two.”
 
-Kael looks at his wrist, "Well, this was a pleasant visit Aris. But I believe I must go."
+“Great to hear.”
 
-"My pleasure Mr. Caelor. Visit anytime! Perhaps the next time you can teach me how to make K'tharr tea."
+Kael looked at his wrist. “Well, this was a pleasant visit, Aris. But I believe I must go.”
 
-"Will do Aris, will do."
+“My pleasure, Mr. Caelor. Visit anytime! Perhaps the next time you can teach me how to make K’tharr tea.”
+
+“Will do, Aris. Will do.”
 
 
 ## Background: 

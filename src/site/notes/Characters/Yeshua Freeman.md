@@ -66,7 +66,7 @@ Yeshua approached the General secretary, a little nervous, a little excited. He 
 
 Yeshua, who was swaying side by side, heard from the General Secretary, "You need to watch yourself." Yeshua felt heat rise up from his chest at the warning. His ears red, he almost ran out of breath.
 
-The General Secretary then stood up and approached his best friend. *Uh oh. I might've gotten him in trouble*. 
+The General Secretary then stood up and approached his best friend. *Uh oh. maybe I might've gotten him in trouble*. 
 
 He watched as the General Secretary talk to Ja'ax in K'tharrian, he couldn't understand a thing. All he could think of was that he just gave away his friend.
 
