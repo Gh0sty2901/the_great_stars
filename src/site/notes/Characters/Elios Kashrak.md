@@ -3,9 +3,7 @@
 ---
 
 
-
 # Short Stories:
-> Note, every conversation is in K'tharrian. Just translated to english for convenience. 
 
 18:30 UTC, Ewigkeit, just outside the J-31 Solar System. Elios was in his quarters getting prepared to land at Neu-Preussen with the General secretary for a state visit. They were there to discuss the recent crackdowns on 'bourgeois' culture. He asked personally to join the discussion as he thought about his brother who ran an underground club in Kareuth. 
 
@@ -111,7 +109,7 @@ Kael looks up at the Elios,
 
  # Short Story 2: 
 
-13:40 UTC, Berlin Palace, Terra. Elios sat at a desk buried in trial papers, going through every signature, receipt and pamphlet again. All of it led to one man, just like Kael said. But a courier receipt kept bugging him. It was countersigned by a woman, Lena Vogt, and her name showed up nowhere else in the case. Not on the pamphlets, not on the maps. A name that clean in a file that tidy was worth following.
+14:10 UTC, Berlin Palace, Terra. Elios sat at a desk buried in trial papers, going through every signature, receipt and pamphlet again. All of it led to one man, just like Kael said. But a courier receipt kept bugging him. It was countersigned by a woman, Lena Vogt, and her name showed up nowhere else in the case. Not on the pamphlets, not on the maps. A name that clean in a file that tidy was worth following.
 
 _Let's see where you go._
 
@@ -263,6 +261,140 @@ Elios turns and leaves withour saying one last word.
 
 "YOU'RE WELCOME." Chester shouted. 
 
- # Short Story 2: Part 2:
+# Short Story 2, Part 2:
 
+Elios walked into the noodle shop across the street and ordered a coffee. He needed a break.
+
+“Smoking allowed here?”
+
+“No one else here, sir. Go ahead.”
+
+He took out a cigarette with a red tip, lit it, and inhaled slowly. Then he pulled the book Kael had assigned him from his coat pocket and cracked it open with a wince, taking another drag. Chapter II: Basic Problems of the Filipino People. It described a country that was semi-colonial and semi-feudal, held for years under imperialist America. He tried to read it intently and caught himself skimming. He would have to read it again with fresh eyes.
+
+When he looked up, a black sedan was parking outside the boarded-up bookshop. He set the cigarette in the ashtray. Two men got out in trench coats, scanned the street, and let themselves in. The lights stayed off.
+
+They came out a few minutes later carrying boxes stamped MARXIST LITERATURE. Elios looked at the book in his hand, then at the boxes.
+
+He thought about going after them. But he was alone, with no backup, and the only people he could call were Berlin’s police, who had handed him a file a little too easily. So he took out a small camera, got the plate, the faces, and the boxes, and let the sedan go.
+
+08:00 UTC the next morning, Elios’s office, Berlin Palace. He had not used the holoboard. Every query on the palace network was logged, and he no longer knew who read the logs. Instead he had pinned everything to a corkboard with red string, a human affectation he’d picked up from old detective vids. It helped him think. The courier receipt, the fake plate, the cop’s file, the bookshop. Every string ended in the same circle.
+
+_Too fucking clean._
+
+He stared at it for a long time. Then he stopped looking at the board and went through who had known what, and when. Lena had spotted his tail within minutes of his starting it. The police had printed him a file before he finished asking. Both had been a step ahead of him, as if someone had told them he was coming.
+
+He went back to the beginning. He had taken Lena’s name to exactly one person at People’s Intelligence, and Ashe had printed the address before he’d finished asking.
+
+His stomach turned. _No._ Ashe was Kael’s husband. Ashe had made him laugh at his own tunic.
+
+But Ashe had also sat at that desk and been the first to see the file. If anyone had watched her open it...
+
+_Ashe, what did you do?_
+
+
+# Short Story 2, Part 3: 
+
+19:40 UTC, Hellersdorf, Berlin, Terra. Elios moved through the shadows on a rented bike, keeping two bikes back from Otto Muller, the cop who had given him the file a little too fast. He weaved through the bike paths and the other riders, noting every turn. He wanted to wring the truth out of the man, but he had promised himself restraint tonight.
+
+20:00 UTC, Otto’s apartment building. Elios watched Otto walk inside and waited a couple of beats before following. The two guards at the entrance, one human and one Vaen, stopped him.
+
+“Visiting or inquiring?”
+
+“Investigating. Commander Elios Kashrak. Now move aside.” He produced his military credentials, and the guards complied.
+
+“Where is Otto Muller’s room?”
+
+“Seventh floor, room 713, sir,” the human guard said with a straight face.
+
+“Thanks. And boys? I want those logs. I was never here alright?”
+
+"Y-yes sir." the guards handed Elios the logbook. Elios pocketed it and intended to burn it later.
+
+Elios takes the elevator to the seventh floor. A sign hanging on the wall said that rooms 710-720 were at the right corridor. He heads right and looked at the door numbers, 710, 711, 712, 713. _Gotcha._
+
+Elios knocks on the door, he looks at his holstered side piece.
+
+“Hold on, hold on, I’m coming.” Otto opened the door, and his eyes widened at the sight of Elios. His smile came a second too late. “Oh, if it isn’t Mister Wrong-Side-of-the-Bed. First question. How’d you find me? Second question. Why'd the guards let you in? Third question-” Elios cut him off.
+
+“None of your business, Otto. May I come in?”
+
+“Do I have a choice?”
+
+“Either you let me in, or I shove my pistol down your throat. I’m willing to bet your insides don’t react well to chaos energy pellets.”
+
+The words were out before he had decided to say them. _Restraint. You lasted twenty minutes._ He kept his hand off the holster and did not look at Otto, because he did not want to see whether the man believed him.
+
+Otto stepped aside, and Elios walked in. The apartment was cluttered, with unwashed dishes piled in the sink and a full trash can. Elios looked around in disgust.
+
+“So, Otto. The addresses, the names, the plate. You told me to go without my uniform. You gave me the information a little too quickly.”
+
+“Well, I figured you were higher up and you needed it fast...”
+
+“We have systems in place, Otto. Information isn’t handed out just like that. It goes up a chain of command for approval.”
+
+Otto sweated. “Well, what can I say, haha. I work fast?”
+
+Elios balled his fist. He couldn’t hold it in. The bastard cop was dodging him. He pulled out his pistol, walked up to Otto, and grabbed him by the collar. He pressed the barrel into the man’s throat and kept his finger on the trigger. _Damn it, Elios. Keep it together._
+
+“Start talking.” His mouth had betrayed him again.
+
+“WHOA, ALRIGHT, ALRIGHT. Listen, someone said you were coming, alright? I had the file ready immediately. I thought it was a test or a pre-instruction or something. I didn’t do nothing.”
+
+“Who told you?”
+
+“I- I don’t know.” Otto looked away, guilty.
+
+Elios aimed the pistol at a glass on the table and pulled the trigger without looking. The tip glowed red as the pistol hummed to life, and the shot turned the glass to fine ash, leaving a grey smear on the tabletop.
+
+“Talk.”
+
+“I SWEAR I DON’T HAVE A NAME. They called on an i-internal line... oh-forty, it said on the screen. I swear I don’t know who sent it. Please don’t shoot me.”
+
+“Internal line. Who could’ve possibly called you?”
+
+“Could be Compliance... They do that sometimes, you know? To test you and shit...”
+
+Elios let go of the officer and holstered his pistol. Otto clutched his neck as if checking that he was still alive.
+
+Elios moved for the door and stopped at the frame. “Oh, and Otto? You tell anyone I was here, and your family receives your urn, delivered by me personally. Got that?” Once more, his mouth moved before his brain did. He cursed himself for it.
+
+# Shorty story 3: 
+
+10:00 UTC, Mitte, Berlin, Terra. The streets filled with people walking to their offices, cars whizzing past. At the side of the road, an unmarked grey sedan was parked across from the Ministry of Accountancy. Ashe sat in the driver’s seat and Elios was in the passenger seat, smoking his favorite brand of cigarettes, red filters. Of the three departments marked 040, this was the one Elios’s notes tied to the Vogt courier receipt, so this was where they started. Elios stared out the window thinking about the events of last night. _That joke about a K’tharr kid lying to his elders, how did I not spot that._
+
+“Hey commander. Snap out of it.” Ashe said plainly. “I could hear you think, and it’s deafening.”
+
+Elios turned his head towards Ashe with a plain look on his face. “S-sorry. I was just..”
+
+“It’s fine. I know what you’re thinking about.” He put his cup of coffee on the holder, “Lay it out on me.”
+
+“The other night..” he hesitated. “I- I had seen him do it countless times over my six years under him. I’ve dragged men out of the dinner room who were causally erased the day after..” He took a drag off his cigarette. “I’d noticed after the second drink. I kept drinking anyways.”
+
+“If you’d stopped that would’ve been a tell as well.”
+
+“Yeah.. “ his tail curling under his seat.
+
+“I just can’t believe he made me, his partner, sit through that, in my own home... He called me Agent Ashe. He- he. URGHH” Ashe slammed his fists on the steering wheel.
+
+Elios stayed silent.
+
+“The worst part is that I understand why he did it.” A tear dropping down his cheek, “The even worst part is that I would’ve done the same.”
+
+Elios pats his back. Ashe took a deep breath.
+
+“I still love him, but. Now there’s fear in my heart. That night, I didn’t see Kael, I saw the general secretary.”
+
+“Me too.” Elios said.
+
+“It’s going to take a lot out of him to make me lose that fear.” Ashe said, eyeing out the entrance once more.
+
+“There, there she is again.”
+
+“Who?”
+
+“Grey coated woman, I saw her earlier. Looked kinda shifty. Now she came out with a briefcase. Accountancy just went from a guess to our front-runner.”
+
+“Then let’s tail her.” Elios threw out his cigarette.
+
+“Keep your side piece ready commander, this could get ugly.”
 

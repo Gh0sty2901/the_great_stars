@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/characters/ashe-caelor/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/characters/ashe-caelor/","dg-note-properties":{"permalink":"/characters/ashe-caelor/"}}
 ---
 
 #thegreatstars #characters 
@@ -60,7 +60,9 @@ Ashe felt heat rise up from her chest down to her crotch.
 
 ## Short Story 3:
 
-20:00 UTC, Lowdown Rock Club, Kareuth, Neu-Preussen. Ashe had been assigned to inspect the club, he was wearing a red dress with no strap that split at his legs, it showed her figure well. The mission was to fit in like a regular and make sure that the club was enforcing rules. Ashe went in, a band playing Nirvana was on, he noticed a hybrid was drumming, _Kael would be proud._
+20:00 UTC, Lowdown Rock Club, Kareuth, Neu-Preussen. Ashe had been assigned to inspect the club, he was wearing a skin-tight strapless red dress with a slit on one leg. _The fabric on this is so soft and the seams are cleaner. It fits so well too. Hubby really is the one._
+
+The mission was to fit in like a regular and make sure that the club was enforcing rules. Ashe went in, a band playing Nirvana was on, he noticed a hybrid was drumming, _Kael would be proud._
 
 She gets to the bar to order a drink. 
 
@@ -142,7 +144,13 @@ She could smell the day on him, warm and musky. “Is that on the agenda?”
 
 “It has been since this morning.”
 
-His claw hooked her neckline and tore the dress down the middle. She opened her mouth to complain, but the rawness of it only made her want him more. He peeled the ruined dress away and folded it neatly on the chair. Her small, pert breasts were bare now, the estrogen doing her nicely.
+His claw hooked her neckline and tore the dress down the middle. 
+
+"You're making me a new one." Ashe complained. Yet the rawness of it made her want him more.
+
+"I will sew you a better one." Kael promised with a smirk.
+
+He peeled the ruined dress away and folded it neatly on the chair. Her small, pert breasts were bare now, the estrogen doing her nicely.
 
 “Boxers off, before I lay you down,” he said. “Take them.”
 
@@ -222,7 +230,308 @@ Robin nodded to the floor. Ilyan nodded to the ceiling. Ashe’s stomach growled
 
 “Hun, I’m hungry.”
 
-“After how much I fed you? You’re insatiable, Ashe
+“After how much I fed you? You’re insatiable, Ashe"
+
+# Short Story 5: 
+
+10:00 UTC, People’s Intelligence Berlin HQ, Terra. Ashe had a mug of coffee beside her as she clacked away at her computer. She was thinking about the trial Kael had told her about. _Too clean,_ he’d said, and she agreed. She took a sip from her mug just as a K’tharrian military officer appeared at her cubicle. It was Commander Kashrak once more, his tunic rumpled and full of creases.
+
+“Hello, Commander. Need more advice or information?”
+
+“You would know, wouldn’t you...” He looked furious.
+
+“Got something to say?”
+
+“Can we speak in private?”
+
+“Sure, I know a place.” Ashe led him to the stairwell, where the cameras were old and barely worked.
+
+“Lena Vogt. You’re the only person I told about her, and yet she knew I was tailing her.”
+
+“So?”
+
+“So I am asking. How did she know, Ashe?” He said her name with a growl, his tail low like Kael’s.
+
+“Are you accusing me of being an informant?”
+
+“Are you?”
+
+“Commander. No. I read the Bogdanov file just a couple of days before. You know what my first thought was? I wished the tribunal would erase him for good. And they did.” Ashe balled her fist. Elios glared at her, then his face softened and his tail curled in against his legs. He sighed.
+
+“Alright. Alright, alright. I just... I had to ask.”
+
+“It’s fine. I get it. I’m not angry that you asked. I’m angry that I would have asked the same.” Ashe looked at the floor, and her eyes darted across it as she turned the pieces over. Then she made the connection.
+
+“This goes deeper than we thought, Commander.”
+
+“What?”
+
+“We have a mole in the agency. It’s the only way. Someone must have been watching the Vogt file.”
+
+“Who?”
+
+“I don’t know yet.”
+
+“Then we report to Kael.”
+
+“No.” It came out too fast, and she heard it. She pressed her lips together and tried again, slower. “Not yet. I’ve watched what tribunals do to people who were only near a leak. If we bring him a guess, he’ll have to act on it, and he’ll act on all of us.”
+
+“We can’t keep this from him. He knows and sees everything.”
+
+“Then we’ll have to be sharper.” She thought about it. Five people had access to the server room, and only one of them was human. “Quisling, in IT. He’s the only human of the five.”
+
+“You think he bugged the files?”
+
+“Two K'tharr, One Vaen and One Vorax. They have no reason to shelter a bloc that wants them dead. He’s the only one who might sympathize with a human-led terrorist group.”
+
+Elios looked like he'd seen a ghost.
+
+“That’s thin.”
+
+“It’s a place to start.” Ashe straightened her blazer. “I’m not asking you to like it.”
+
+“Then I’ll keep an eye on humanist activity. You unravel the mole.”
+
+“Let’s reconvene in exactly 48 hours.”
+
+“Let’s.”
+
+# Short Story 5, Part 2:
+
+06:00 UTC, People’s Intelligence Berlin HQ, Terra. No one was there yet except the security detail. Work usually started at 09:00 and no one was allowed in, but Ashe was an exception, and the guards, two K’tharrians, stepped aside, their faces white.
+
+“Any of you boys have keys to the security room?”
+
+“Uhm, sir... ma’am.”
+
+“It’s sir today.”
+
+“Sir, we, uh, aren’t allowed to give security keys to staff...”
+
+“Are you defying me?”
+
+“NO, SIR!” the officer's voice cracked, saying it a little too fast. He looked around as if to check who's listening. “Okay, listen. I can’t give you the keys and I'm not going to. But what if, let’s just say, we went into the security room to check last night’s footage. We are graveyard shift and we are very sleepy. And we just so happen to run out of coffee, and, uh-oh, we forgot to close the door.”
+
+“Then I walk right in and you are absolved.”
+
+“Y-yes, sir.” The officer walked in, and Ashe waited until he returned, yawning.
+
+Ashe walked in, took a left turn at the end of the corridor, and entered the security room. He sat in front of the terminal, checked in on the IT room, and pulled up some logs at the terminal next to it.
+
+02:00 UTC. There he is. Quisling. He had no reason to be in the server room at that hour. He plugged a flash drive into the server and typed something into the terminal. Ashe checked the door logs. No sign of Quisling’s ID.
+
+_Goddamnit. This goes even deeper. Someone let in Quisling._
+
+Ashe memorized the time and the logs. He erased his own entry and exit from the corridor feed, nothing else, then pushed the chair back exactly where he’d found it. At the door he paused and looked once at the tidy desk.
+
+“Gentlemen,” he said as he passed the guards. “Thank you for the coffee.”
+
+“Anytime, sir,” one of them said. Neither of them moved from attention, and both were sweating.
+
+
+# Short Story 5, Part 3:
+
+10:00 UTC, Jack’s Cafe, Laguna, Philippine Lands, Terra. It had been exactly forty-eight hours since the meeting with the commander. They had agreed to reconvene somewhere different and report what they’d found. Ashe wore a trench coat and had dyed her hair brown. She could always bleach it again. A K’tharr in overalls sat across from her. It was Commander Kashrak.
+
+“Ma’am,” Elios said, low.
+
+“Ma’am’s fine today.” She stirred her coffee. “What’d you find, Commander?”
+
+“I tailed the black sedan to a warehouse in Prague. They’re setting up for something big. Crates, a lot of them, and a delivery truck with no markings coming and going all night. Same sedan parked out front the whole time. You?”
+
+“Fucking Quisling was in the server room at oh-two-hundred, doing something to the servers. And someone let him in.”
+
+“So it goes even deeper?”
+
+“Deeper than my husband at night time, yes.” She raised an eyebrow over the rim of her cup.
+
+Elios stared at the table. “Ashe.”
+
+“What? It’s true.”
+
+“I know it’s true. That’s what’s wrong with it.” He rubbed the back of his neck, and the joke died between them.
+
+They both stayed silent for a beat.
+
+“There’s something I should have told you,” Elios said. “The cop who gave me the names, the one who printed that file too fast. And the chop shop, and the bookshop in Alexanderplatz. I have photos.” He slid a small camera across the table. “I held it back. I wasn’t sure about you.”
+
+Ashe looked at the camera and didn’t touch it. “What cop?”
+
+“Berlin People’s Police. He was the one who pointed me to the plate makers.”
+
+“And you waited two days to tell me.”
+
+“Yes.”
+
+She let that sit. Then she picked up the camera and put it in her coat. “I’d have done the same. I hate that I’d have done the same.”
+
+“I can’t keep hiding this from the General Secretary,” Elios said. “He’s beginning to notice.”
+
+“How do you think I feel? I live with him.”
+
+“Then let’s tell him now.”
+
+“And if we do, he burns the agency to find a mole who’s already gone quiet.” She shook her head. “Not until we have a name.”
+
+Elios’s jaw worked. His tail curled under the chair, and he didn’t answer for a long time.
+
+“Another forty-eight,” he said finally. “That’s it, Ashe. Not an hour more.”
+
+“Fine.”
+
+“You figure out how deep it goes in the agency. I’ll confront that bastard cop.”
+
+“And Kael?”
+
+“We report to him if we find nothing.”
+
+Ashe looked at the street, where people with bags and bicycles went by in the warm morning. Her coffee had gone cold. She hadn’t noticed.
+
+
+
+# Short Story 5, Part 4:
+
+16:00 UTC, Berlin, Terra. Ashe looked at her wrist terminal, an uneasy recall by Kael back to the apartment. _Dear, Come home,_ the message read. It had been exactly 30 hours since she and Elios had convened. Elios reported back to her about the 040, there were three departments that had that designation, one in accountancy, one in the agency, and one in compliance. Thoughts and theories ran through her head who or which one it could've been. But for now, she flushed it all away and thought about Kael.
+
+16:30 UTC, Caelor Apartment, Friedrichshain, Berlin. She swiped her keycard onto the keypad, the door unlocks with a kachunk and slid open. A whole feast was laid out on a table in the living room, meats, vegetables and other kind of delicacies from around the galaxy sat on plates on the table. A record also played in the background, some kind of old jazz her grandpop used to play. Kael was sitting on a chair at the head of the table while Elios sat to his right, they were conversing in K'thar. Kael turned his head to look at Ashe.
+
+"Agent Ashe, glad you could come." Kael said. _Agent Ashe, he never addressed me like that. Also this is my home too._
+
+"Hun? What's this about?"
+
+"This. Is a courtesy dinner my love. Come, sit right next to me." He'd stand up and pull out a chair to his left for Ashe to sit in. She felt unease, tingles crawling through her spine but she complied anyway. 
+
+"Comrades, relax. Tonight we celebrate. Elios here has made moves on the Humanist bloc and we have them on their toes. We are close to finding a good lead on them all thanks to Elios."
+
+_Comrades.. He never adressed me nor Elios as that._
+
+Ashe looks at Elios thinking. _Did you tell him anything?_ Elios shook his head slightly, as if he had read her mind.
+
+Kael poured the wine. A deep red, K’tharr vineyard on Terran soil. He filled Elios’s glass to the brim. Ashe’s got a finger’s worth, and his own a little more than that. Ashe didn’t think about it then.
+
+“A toast,” Kael said, raising his glass. “To the revolution, and the vigilance that protects it.”
+
+They drank. Kael took a sip and set his glass square on the table.
+
+Kael served Ashe and Elios both delicacies from their own respective home planets and towns. Commander Kashrak got Larvae soup, She got lechon kawali. It was juicy, it reminded her of the feasts in her home town. Kael converse with Elios about a book he had read, about K'tharr tea harvest in the homeworld, about K'tharr music. It was the warmest he had been in weeks, and Ashe’s shoulders loosened without her permission.
+
+“Another toast,” Kael said. “To Comrade Aris Thorne, for his recovery.”
+
+Elios’ glass was refilled before it was half empty. Ashe reached for hers, and Kael’s hand settled over the rim.
+
+“You have had enough, my love. Tea.”
+
+Kael poured it himself, yellow coloured, smelled like ginger. _Is this salabat?_ He did not explain, and she did not ask. She takes her cup and took a sip, just like her parents made her when she felt sick. Elios on the other hand, drank to Aris.
+
+"And one to the Ewigkeit for its continued successful missions to the Frayed Zone."
+
+Elios drank. He was starting to sway and his cheeks were red, he had loosened his tunic. She was starting to realize what was happening. _No. but why him only?_
+
+"Elios. How's Berlin been treating you? Heard you've been taking walks."
+
+_Don't take the bait._
+
+"Oh yes sir. I've been following leads is all."
+
+_Shit._
+
+“Leads.” Kael cut a piece of bread. “Which leads?”
+
+“The, uh. The usual. Sir, the plates, the garage...”
+
+“The garage near Alexanderplatz.” Kael chewed slowly and swallowed. “And the noodle shop beside it. I hear the coffee is acceptable.”
+
+Elios went still. Ashe felt it across the table. _He knows about the noodle shop._ Her stomach dropped a floor, and there was no wine to blame for it.
+
+“Ah. Another toast,” Kael said pleasantly, and refilled Elios’ glass. His own had barely moved. “To honesty between comrades.”
+
+Elios drank. Ashe lifted her tea and drank with them. _He’s keeping me sober on purpose. He wants me to hear every word._
+
+He told a joke in K'tharrian to Elios. Ashe didn't understand it but Elios was laughing hard. Kael only smiled while his tail stayed low to the ground. _What is going on?_
+
+"Ashe, my love. Come here.”
+
+She slid her chair closer, and he pulled her in with one arm, his hand heavy on her shoulder. She could feel his heartbeat. It was slow, unhurried. Hers was racing, and every beat of it was fear. _He did not just..._
+
+“I have eaten two bites,” Kael said quietly, and Ashe realized it was true. His plate was nearly full. “I have drunk one glass. Elios has had five. You have had one, and tea.” His thumb moved once over her shoulder. “I would not do that to you, Ashe, I could not do it. But I will not pretend I did not need you to listen.” 
+
+Her throat was dry. “Hun...”
+
+“Comrades.” His face dropped. The warmth went out of the room like a lamp switched off. He stood, walked behind Elios’ chair, and rested one hand on its back. “I know you are hiding something. I do not like it when you hide something from me. You will tell me everything about your activities regarding the humanist bloc, and you will not leave out a minutiae of detail.”
+
+Ashe looked at Elios. He looked at her. They both swallowed.
+
+“Well?”
+
+“Hun, I...”
+
+“Commander. You first.”
+
+Elios’ hands shook on the table. “We tracked the humanist blocs all over our state apparatus, sir. There are moles in the Agency, the Police, the palace. They knew my every move. They’re planning something.” The words came out in a rush, slurred at the edges.
+
+Kael's tail flicked when Elios said the word palace, he is pissed off.
+
+“And how long have you known this?” Kael said low. He felt even bigger than he already was.
+
+“Exactly s-seventy-eight hours, sir.”
+
+Kael stood perfectly still, face deadpan, hands behind his back. His tail betrayed him. At first it only flicked, then it dropped low to the floor.
+
+“Seventy-eight hours. Not one report, on one of the greatest dangers to our society. Explain yourselves.”
+
+“We didn’t want you burning down the agency, hun...” Ashe heard herself say it, in a clear, steady voice that did not sound like hers. Kael’s tail flicked. “We hadn’t realized the rot ran deeper...”
+
+“We’re so sorry, sir. I...”
+
+Kael took a long breath. He walked back to the head of the table, poured the last of the wine in his glass into the sink, and rinsed it.
+
+“Ashe. Go to bed and rest. Elios, you are dismissed. You may sleep on our couch tonight. We will reconvene when commander Elios is of clear mind.” He turned. “From now on, you report to me everything you find. Understand?”
+
+He said the last word with a low growl. Ashe and Elios nodded.
+
+# Short Story 5, part 5:
+06:00, Caelor apartment, Berlin. Ashe woke up from her slumber in a flash. She opened her eyes and felt her heart surge, jumping out of bed. Then she remembered last night, the dinner, the drinks, the tea, Elios... She put the thoughts away and made the bed, just like Kael does. She leaves her bedroom and smelled it, pancakes, eggs and bacon. She followed the smell to the kitchen and she saw Elios at the island table, wearing pajamas Kael had lent him. Kael was wearing his white shirt and gym shorts and a bland apron this time.
+
+“Good morning love, have a seat. I made you both breakfast.” Kael said with warmth in his voice. It was unnerving.
+
+She takes a seat just across Elios as Kael served her a plate of pancakes, eggs and bacon.
+
+Elios got something else. Kael set a flat slab of black basalt in front of him, warmed on the stove until its edges shimmered, and on it sat a deep clay bowl. Four small marsh frogs lay in it, toasted golden and split down the middle, resting on a broth the color of weak amber. Dune larvae floated in the broth alongside two boiled eggs, halved, the yolks still soft. A pinch of powdered eggshell was dusted over everything like frost, and a few leaves of bitter sunleaf were wilting in the steam.
+
+“Kesh’a toruk,” Kael said. “Frogs for strength, broth for the stomach, shell for the bones. The stone is warm because a cold body does not mend.”
+
+Elios’ eyes lit up. His tail, which had been coiled tight under the stool all morning, came loose and swept once across the floor. “Sir, this is what my parents used to make for me. Mother did the broth, and Father did the frogs, on the nights I couldn’t sleep. I haven’t had it since I left home.”
+
+Kael’s face did not change. “I know. Your service file lists your mother’s kitchen. I had the palace cooks send me her method.”
+
+Elios went very still. His mother was alive, and his father was not. Ashe watched him look down at the bowl, then pick up the spoon with a hand that wasn’t quite steady. The frog legs crackled between his teeth, and he closed his eyes at the first mouthful of broth.
+
+Ashe cuts the pancake and takes a bite, fluffy as always.
+
+Kael takes a seat in front of Ashe, he did not have a plate of his own. The silence for a while was palpable. Then.
+
+“Last night was upsetting.” Kael said.
+
+“It is a technique I used on party members that withheld from me, and those I suspected of treason. Men I particularly did not care for. I did not enjoy having to use that same manipulative technique on my second.” His dark red eyes moved to Ashe, “And I especially did not enjoy using it on my partner.”
+
+Ashe set her fork down and let the silence sit a moment before she answered. “I knew about your techniques. I’ve read about it in the agency reports, same pattern of a dinner, the toasts, the drinks, then the questions. You held back the drinks on me.”
+
+“That I did, yes. I could not bear to see my partner in such a state.”
+
+_And yet you still asked me the questions,_ Ashe thought, and picked her fork back up without saying it.
+
+Elios looked down at his bowl as he heard the conversation.
+
+“And me, sir? I was at those dinners too.. I even sat in on the one where First Secretary Noel confessed about the unreported raids.”
+
+“Oh yes, I remember that one. That was a hoot.” his tail flicking up. “It does not excuse my using it on my two most trusted individuals.” Kael said looking down. “I sincerely apologize. It will not happen again.”
+
+“I just can’t believe that I knew of your techniques, and yet here I am falling for it.” Elios noted, his mouth full of frogs.
+
+“Chew your food, commander.”
+
+Elios swallowed, “Y-yes sir. S-sorry.”
+
 
 # Background
 Nonbinary husband to the most powerful man in the galaxy, Ashe Caelor works at the people's intelligence agency. She was born in the land of the Philippines at November 12, 2300. 

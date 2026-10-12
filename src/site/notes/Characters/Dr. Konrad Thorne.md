@@ -3,6 +3,7 @@
 ---
 
 
+
 The sun prophet
 
 # Short Story: 

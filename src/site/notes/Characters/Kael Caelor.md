@@ -3,6 +3,7 @@
 ---
 
 
+
 #thegreatstars #characters
 
 # Short story: 
@@ -361,7 +362,7 @@ Kael stands up from his chair, Elios felt like Kael was taller than he'd ever be
 
 "Y-yes sir."
 
-# Short Story 8: 
+# Short Story 9: 
 
 14:30 UTC, New York City, Terra. The streets were bustling, high rise offices were repurposed into high density living spaces. Streets filled with people ranging from Humans to K'tharr while Vaens flew overhead. Fusion powered cars and busses roared on the road as they tumbled through. Street vendors filled the air with the smell of falafels, gyros, qwek qwek, and other street delicacies from around the galaxy. Kael was riding through the street in a private vehicle flanked by armored cars, he was here to visit Aris Thorne. 
 
@@ -426,6 +427,12 @@ Kael looks at his wrist, "Well, this was a pleasant visit Aris. But I believe I 
 "My pleasure Mr. Caelor. Visit anytime! Perhaps the next time you can teach me how to make K'tharr tea."
 
 "Will do Aris, will do."
+
+# Short Story 10: 
+
+5 years ago, 16:00 UTC, Palace of Workers, Kareuth, Neu-Preussen.
+
+
 
 
 ## Background: 

@@ -3,6 +3,7 @@
 ---
 
 
+
 Iron Secretary - Tyrant - Genocide
 
 # Short Story: 

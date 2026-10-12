@@ -3,6 +3,7 @@
 ---
 
 
+
 #thegreatstars #characters 
  # World eater
 
@@ -136,6 +137,10 @@ Ja'ax recoiled at the sudden question.
 "No," Yeshua said, looking away. Ja'ax could just about notice a faint blush. He wanted to push further but decided not to.
 
 "Whatever, man. Let's just enjoy the park," Yeshua muttered as he stared at the statue of Marx and Engels close together.
+
+# Short Story 4: 
+
+
 # Background
 
 
